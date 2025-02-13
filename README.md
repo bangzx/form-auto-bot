@@ -1,3 +1,6 @@
+## CHANNEL TELEGRAM JOIN HERE
+[KLIK DISINI AIRDROP FETCH](https://t.me/airdropfetchofficial) 
+
 ## Installation
 
 1. Clone the repository:
